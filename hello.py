@@ -1,3 +1,6 @@
-B
-D
-print()
+
+
+
+
+D{"scsdc")kncjhvcjsdc""
+imckm()
